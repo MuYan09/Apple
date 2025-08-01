@@ -12,10 +12,10 @@
 
 ### [【2025年最新】美区Apple ID注册教程](https://www.muooy.com/525.html) 
 
-### [Apple美区/港区/土耳其礼品卡购买](https://juzixp.top/) 
+### [Apple美区/港区/土耳其礼品卡购买](https://juzixp.com/) 
 
-### [共享苹果美区ID](https://juzixp.top/buy/21) 
+### [共享苹果美区ID](https://juzixp.com/buy/21) 
 
-### [已购小火箭Shadowrocket美区独享成品号](https://juzixp.top/buy/15) 
+### [已购小火箭Shadowrocket美区独享成品号](https://juzixp.com/buy/15) 
 
-### [苹果美区独享账号](https://juzixp.top/buy/3) 
+### [苹果美区独享账号]https://juzixp.com/buy/3) 
