@@ -18,4 +18,4 @@
 
 ### [已购小火箭Shadowrocket美区独享成品号](https://juzixp.com/buy/15) 
 
-### [苹果美区独享账号]https://juzixp.com/buy/3) 
+### [苹果美区独享账号](https://juzixp.com/buy/3) 
